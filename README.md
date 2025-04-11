@@ -6,7 +6,7 @@
 -  En la mia 🚀🔥😛
 - ⚡bajo perfil 💣🥇
 -  No presumo, solo dejo que se note 😴🎭
--  -Oro en el cuello, paz en el alma 💸✈️
+-  Oro en el cuello, paz en el alma 💸✈️
 -  No tengo rivales, solo fans confundidos💫🙏
 <!---
 Lolaxzogg/Lolaxzogg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
